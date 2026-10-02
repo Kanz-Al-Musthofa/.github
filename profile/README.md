@@ -1,5 +1,8 @@
+# Kanz Ilmi Wassholawat Al-Musthofa
+
 ## Hi there 👋
-Berkumpul bersama mereka, para kekasih Allah dari kalangan orang-orang yang menepati janji/setia adalah kenikmatan abadi di negeri yang fana ini.
+Gathering with them, the lovers of Allah from among those who keep their promises/are loyal is an eternal pleasure in this mortal country.
+
 <!--
 
 **Here are some ideas to get you started:**
